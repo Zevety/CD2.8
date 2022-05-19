@@ -12,6 +12,10 @@
 
 ## Выполнение задания:
 
+![11](https://user-images.githubusercontent.com/90498783/169276836-01c48f7e-52f1-4c39-bc74-116ca52cd743.png)
 
+![22](https://user-images.githubusercontent.com/90498783/169276859-6f012834-1b5f-44d4-94e2-0528489d53f8.png)
+
+![33](https://user-images.githubusercontent.com/90498783/169276872-f69d9413-877e-4e38-b5e9-a6251779d22c.png)
 
 
